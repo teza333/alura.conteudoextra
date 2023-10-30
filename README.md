@@ -8,3 +8,6 @@ Meu nome é Alessandra Teza
 
 ### Voçê pode entrar em contato comigo 📫
 alessandra.teza@escola.pr.gov.br
+
+
+![](https://media.tenor.com/Gm8HFq3CwUMAAAAC/birthday-party.gif)
